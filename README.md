@@ -7,3 +7,4 @@ S ÃO TAMBEM COMPARADAS AS ONDAS DO MAR ...QUE VEM....E VOLTAM...(ENTRA NOS SEUS
 
                                                                                                                                                                                                    
 DEUS SABE DE TUDO !!!!!  NADA EM QUE A PESSOA É INDECISA DÁ CERTO ACREDITE !
+![gif_temp (3)](https://user-images.githubusercontent.com/96752968/152704093-a68483c7-bafd-42d0-a4ea-74cf48649676.gif)
